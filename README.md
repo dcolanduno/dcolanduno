@@ -1,4 +1,4 @@
-I am Derek Colanduno, thank you for even clicking on this. 
+https://portal.azure.us/@vaazuregov.onmicrosoft.com 
 
 VA Azure Zero Login:
 
